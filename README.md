@@ -1,0 +1,3 @@
+- 👋 Siema jestem @Frellboxgame
+- zajmuje się dev fivem
+-  Zapraszam na Flame Leaks https://discord.gg/7XctvdSXeB
